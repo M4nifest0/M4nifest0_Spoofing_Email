@@ -19,7 +19,7 @@
 
 ##### See Training 
 
-- 🔞 See Training 🎥 https://youtu.be/g2EXA1Chrhg 🎥
+- 🔞 See Training 🎥 https://youtu.be/3pEcUp50y38 🎥
 
 ----------------------
 
